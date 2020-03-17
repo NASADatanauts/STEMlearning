@@ -1,4 +1,4 @@
-# STEM Resources
+# Resources for learning online 
 
 A lot of us are working from home and trying to keep our kids engaged. This is a splendid time for STEM projects.
 
